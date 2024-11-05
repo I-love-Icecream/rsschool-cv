@@ -15,7 +15,7 @@
 
 ### **System Analyst**
 **Tinkoff Bank**, Moscow, Russia  
-*June 2023 вЂ“ Present*
+*June 2023 to Present*
 
 ---
 
